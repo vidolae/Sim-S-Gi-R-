@@ -1,4 +1,4 @@
-Liên kết các mạng xã hội của chúng tôi:
+Chúng tôi hiện có trên các trang mạng xã hội dưới đây. Khách hàng có thể kết nối cùng chúng tôi như sau:
 
 https://twitter.com/simsogiarecom
 
@@ -35,3 +35,31 @@ http://forums.oreilly.com/user/64868-nguyen-anh-tuan/
 https://www.xing.com/profile/SimS-_GiaR-
 
 https://simsogiare.jimdo.com/
+
+http://www.authorstream.com/simsogiare/
+
+https://angel.co/anh-tuan-nguyen-4
+
+https://www.vox.com/users/vidolaem
+
+https://github.com/vidolae
+
+https://steepster.com/vidolaem
+
+https://app.crayon.co/on/simsogiare_net/
+
+https://www.usgbc.org/people/sim-so-gia-re/0011201543
+
+http://steamcommunity.com/id/simsogiare
+
+http://directory.mirror.co.uk/company/1013653677608960
+
+http://directory.nottinghampost.com/company/1013653677608960
+
+https://my.desktopnexus.com/vidolaem/
+
+http://www.purevolume.com/listeners/simsogiare
+
+http://www.foodspotting.com/simsogiare
+
+https://storify.com/simsogiare
